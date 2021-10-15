@@ -1,5 +1,5 @@
 # paczka-LimeRP
-witam udostępniamy wam tą paczkę ponieważ potężny owner serwisu limerp używa ją bez naszego pozwolenia a paczka sama w sobię to allon pack v4(XD) 
+witam udostępniamy wam tą paczkę ponieważ potężny owner servera limerp używa ją bez naszego pozwolenia a paczka sama w sobię to allon pack v4(XD) 
 a tak poza tym jebać LimeRP i się nie bać, owner to jebany kutas co deva żle tratuje to paczka leci w świata 
 
 
@@ -7,7 +7,7 @@ a tak poza tym pozdrawiam egziego XD stulejkę co chcę paczkę za free
 
 
  
-a zapomniałem wspomnieć że ma ból dupy że na innych mniejszych serwisach więcej osób gra XDDDDDD to rozwala cheatami i sprzedaję spoffer z ratem
+a zapomniałem wspomnieć że ma ból dupy że na innych mniejszych serverach więcej osób gra XDDDDDD to rozwala cheatami i sprzedaję spoffer z ratem
  
  
  
