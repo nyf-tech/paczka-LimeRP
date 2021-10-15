@@ -3,6 +3,10 @@ witam udostempniam tę paczkę poniewarz owner limerp urzywa ją bez mojego pozw
 a tak po zatym jebać LimeRP i się nie bać owner to jebany kutas co deva żle tratuje to paczka leci w świata 
 a tak po zatym pozdaramiam egziego XD stulejkę
 
+
+ 
+a zapomniałem bym spomnieć ma bul dupy rzę na innych mniejszych serverach więcej osób gra  to rozawla cheatami i sprzedaję spoffer z ratem
+i kickuję z discorda bo mam leprzę leaki od niego 
 a tak po zatym macie ss na tego debila https://imgur.com/a/lmsqVgG
  jak mu robię paczkę  a on ją usuwa  top project owner
 
