@@ -1,6 +1,7 @@
 # paczka-LimeRP
 witam udostempniam tę paczkę poniewarz owner limerp urzywa ją bez mojego pozwolenia a paczka sama w sobię to allon pack v4 
 a tak po zatym jebać LimeRP i się nie bać owner to jebany kutas co deva żle tratuje to paczka leci w świata 
+a tak po zatym pozdaramiam egziego XD stulejkę
 
 a tak po zatym macie ss na tego debila https://imgur.com/a/lmsqVgG
  jak mu robię paczkę  a on ją usuwa  top project owner
