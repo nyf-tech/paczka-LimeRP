@@ -1,27 +1,28 @@
 # paczka-LimeRP
-witam udostempniam tę paczkę poniewarz owner limerp urzywa ją bez mojego pozwolenia a paczka sama w sobię to allon pack v4 
-a tak po zatym jebać LimeRP i się nie bać owner to jebany kutas co deva żle tratuje to paczka leci w świata 
+witam udostępniamy wam tą paczkę ponieważ potężny owner serwisu limerp używa ją bez naszego pozwolenia a paczka sama w sobię to allon pack v4(XD) 
+a tak poza tym jebać LimeRP i się nie bać, owner to jebany kutas co deva żle tratuje to paczka leci w świata 
 
 
-a tak po zatym pozdaramiam egziego XD stulejkę co chę paczkę za free 
+a tak poza tym pozdrawiam egziego XD stulejkę co chcę paczkę za free 
 
 
  
-a zapomniałem bym spomnieć ma bul dupy rzę na innych mniejszych serverach więcej osób gra  to rozawla cheatami i sprzedaję spoffer z ratem
+a zapomniałem wspomnieć że ma ból dupy że na innych mniejszych serwisach więcej osób gra XDDDDDD to rozwala cheatami i sprzedaję spoffer z ratem
  
  
  
- i kickuję z discorda bo mam leprzę leaki od niego 
+ i kickuję z discorda bo mam lepszę leaki od niego.
 
 
 
 
-a tak po zatym macie ss na tego debila https://imgur.com/a/lmsqVgG
+callout na debila https://imgur.com/a/lmsqVgG
 
 
 
 jak mu robię paczkę  a on ją usuwa  top project owner
 
+XDDDDDDDDDDDDDDD POZDRO EXZO X XARM
 
 
 
