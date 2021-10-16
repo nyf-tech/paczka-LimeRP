@@ -3,8 +3,7 @@ witam udostępniamy wam tą paczkę ponieważ potężny owner servera limerp uż
 a tak poza tym jebać LimeRP i się nie bać, owner to jebany kutas co deva żle tratuje to paczka leci w świata 
 
 
-a tak poza tym pozdrawiam egziego XD stulejkę co chcę paczkę za free 
-
+#usunięte dla prożby usera#
 
  
 a zapomniałem wspomnieć że ma ból dupy że na innych mniejszych serverach więcej osób gra XDDDDDD to rozwala cheatami i sprzedaję spoffer z ratem
