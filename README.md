@@ -2,7 +2,12 @@
 witam udostępniamy wam tą paczkę ponieważ potężny owner servera limerp ściek aktualna ############# sobię to allon pack v4(XD) 
 a tak poza tym jebać LimeRP i się nie bać, owner to jebany kutas co deva żle tratuje to paczka leci w świata 
 
-nie pisz na pv pls 
+nie pisz na pv !!!!!!!!!!!!!!!!!!!!!!!! 
+
+
+
+
+
 oficialny discord dc.xarm.pl
 
 #usunięte dla prożby usera#
